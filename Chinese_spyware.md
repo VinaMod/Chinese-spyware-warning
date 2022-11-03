@@ -12,7 +12,7 @@ TikTok có RẤT RẤT NHIỀU video rác và điều này đang tăng lên, có
 
 ## Nguồn tham khảo
 https://www.tiktok.com/legal/page/row/privacy-policy/vi vì chính sách của google nên TikTok buộc phải ghi ra những gì ứng dụng sẽ thu thập nhưng không ai thèm đọc, lợi dụng lỗ hổng lớn nhất là nhân tố con người TikTok vẫn lộng hành và ăn cắp dữ liệu như bình thường.
-https://penetrum.com/research phần Tiktok Research. Đây là báo cáo của một nhóm nghiên cứu bảo mật.
+https://penetrum.com/research phần Tiktok Research, đây là báo cáo của một nhóm nghiên cứu bảo mật.
 https://www.reddit.com/r/videos/comments/fxgi06/comment/fmuko1m/ bình luận trên reddit của một nhà nghiên cứu bảo mật.
 
 ## Lời kết
