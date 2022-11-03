@@ -16,4 +16,4 @@ https://penetrum.com/research phần Tiktok Research. Đây là báo cáo của 
 https://www.reddit.com/r/videos/comments/fxgi06/comment/fmuko1m/ bình luận trên reddit của một nhà nghiên cứu bảo mật.
 
 ## Lời kết
-có rất nhiều quốc gia đã cấm ứng dụng TikTok vì lo ngại về vấn đề an ninh quốc phòng. Qua tất cả những gì đã trình bày ở trên, là một người Việt Nam tôi khẩn khoản yêu cầu nhà nước hành động để ngăn chặn những điều tồi tệ nhất có thể sảy ra, các biện pháp như là cấm TikTok hoặc có các biện pháp hạn chế. Vì thế hệ mai sau của quốc gia và tương lai của Việt Nam.
+có rất nhiều quốc gia đã cấm ứng dụng TikTok vì lo ngại về vấn đề an ninh quốc phòng. Qua tất cả những gì đã trình bày ở trên, là một người Việt Nam yêu nước tôi khẩn khoản yêu cầu nhà nước hành động để ngăn chặn những điều tồi tệ nhất có thể xảy ra, các biện pháp như là cấm TikTok hoặc có các biện pháp hạn chế. Vì thế hệ mai sau của quốc gia và tương lai của Việt Nam.
